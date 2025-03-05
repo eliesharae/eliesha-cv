@@ -231,3 +231,13 @@ In 2017, chefs in Mexico City created the world's largest what, weighing in at o
   <summary>🔎 Click to reveal the answer</summary>  
   Cleveland  
 </details>  
+
+---
+
+## 🎉 **How Did You Go?**  
+That’s a wrap! Did you nail it, or did a few questions leave you scratching your head?  
+
+No matter your score, remember:  
+✔ You learned something new today    
+✔ You now have at least one weird fact to impress (or annoy) your friends with    
+✔ You’re officially part of the trivia-loving elite (or at least, you survived the quiz)    
