@@ -29,7 +29,7 @@ Creative content strategist, quiz writer, and storytelling specialist with over 
 - **Currently developing The Westsider Crossword Tournament** in collaboration with Willy Lit Fest, inspired by the **American Crossword Puzzle Tournament**  
 
 ### **Senior Designer (Forecasting & Strategy)** | *MYER (2015 – Present)*  
-- Mentored and **developed junior designers** to enhance team creativity and strategic thinking.  
+- Mentored and **developed junior designers** to enhance team creativity and strategic thinking 
 - Designed and implemented **team-building initiatives**, including trivia-based engagement activities during COVID remote work  
 
 ---
